@@ -1,1 +1,0 @@
-# dyedsol.github.io
